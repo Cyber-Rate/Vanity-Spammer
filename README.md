@@ -1,2 +1,1 @@
-# Vanity-Spammer
-Discord url spammer
+100 star da paylaşılır
